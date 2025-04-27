@@ -1,5 +1,5 @@
 # 💫 About Me:
-💜Hi, I'm Alix!<br>🔮I've just started learning stuff. Lots of stuff. As much stuff as I can before the next world catastrophe. <br>🪻I'm currently in a tough spot because I don't have a mentor, an education and I didn't pay for expensive courses.<br>🍇So I am really (really) open to any collaborations/projects/jobs/mentoring! <br>😈Looking forward to taking over your projects!<br>💟XOXO
+💜Hi, I'm Alix!<br>🔮I'm diving headfirst into learning — as much as possible before the next world catastrophe hits. <br>🪻Right now, I'm figuring things out without a mentor, formal education, or overpriced courses. <br>🍇I'm super (super!) open to collaborations, projects, jobs, or just some mentoring vibes! <br>😈Can't wait to hijack your projects (in the best way possible)!<br>💟XOXO
 
 
 ## 🌐 Socials:
